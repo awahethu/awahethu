@@ -2,7 +2,7 @@
 - 👀 I’m interested in ..software development.
 - 🌱 I’m currently learning ..computer science.
 - 💞️ I’m looking to collaborate on . on projects that involve creating innovative solutions to real-world problems...
-- 📫 How to reach me .via email @..
+- 📫 How to reach me .via email annlinetwahethu@gmail.com
 - 😄 Pronouns: .she/her..
 - ⚡ Fun fact: .: I once participated in a hackathon where my team built a chatbot that could tell jokes in five different languages!..
 
